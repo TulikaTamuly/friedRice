@@ -1,0 +1,1 @@
+Want to have something delicious when  you have just a bit time, try this recipe of Fried rice and tell me how you liked it.
